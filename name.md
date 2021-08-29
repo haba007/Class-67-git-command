@@ -1,1 +1,1 @@
-once upon a time in a forest there live a monkey on a tree which wa on the banks of the river and in the same forest there was a crocodile and his wife
+once upon a time in a forest there live a monkey on a tree which was on the banks of the river and in the same forest there was a crocodile and his wife.One day the couple met the monkey and they became friends.
